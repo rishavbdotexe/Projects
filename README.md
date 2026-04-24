@@ -1,4 +1,4 @@
-# 👨‍💻 Rishav
+# 👨‍💻 Rishav Bhandari
 
 ## 📧 Contact
 - 📧 Email: [rishavbdotexe@gmail.com](mailto:rishavbdotexe@gmail.com)
