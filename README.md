@@ -4,6 +4,7 @@
 - 📧 Email: [rishavbdotexe@gmail.com](mailto:rishavbdotexe@gmail.com)
 - 💻 GitHub: [rishavbdotexe](https://github.com/rishavbdotexe)
 - 🔗 LinkedIn: https://linkedin.com/in/your-linkedin
+- RESUME LINK: https://drive.google.com/file/d/11A6CueCT8XWssTnQL4PRW1RGRUhHfJFN/view?usp=sharinghttps://drive.google.com/file/d/11A6CueCT8XWssTnQL4PRW1RGRUhHfJFN/view?usp=sharing
 
 ---
 
